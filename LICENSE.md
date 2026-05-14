@@ -1,4 +1,4 @@
-# 
+# ClickUp for Windows best Extension: recurring-tasks & notifications offers the most advanced ClickUp for Windows extension, with recurring-tasks and notifications. Ideal for
 
 
 
